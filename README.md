@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @tsipakov21
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...fghj
+- 💞️ I’m looking to collaborate on ...fghj geregr
 - 📫 How to reach me ...3gw erre346 2ear faer
 d tyjjy dtryi ret
 <!---hxfg
