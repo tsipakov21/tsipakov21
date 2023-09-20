@@ -1,5 +1,5 @@
 2- 👋 Hi, I’m @tsipakov21
-- 👀 I’m interested in ...k tyjghjtyyj
+- 👀 I’m interested in ...k tyjghjtyyjt4at 43t43t43t4a
 - 🌱 I’m currently learning ...k yfu 74545 745ghtrs gfs
 - 💞️ I’m looking to collaborate on ...fghj geregrl yiuh e56he5h5e6jj h erterth terger regwerww563
 - 📫 How to reach me ...3gw erre346 2ear faer trt uykr tyjw56f wefwe 6456tryrt tgreter krtyrkty tyg eargerg  65426245 654
